@@ -1,4 +1,4 @@
-
+bedwars Scripts secret is the best bedwars Script, featuring private server access and undetectable. Safe and powerful for all your needs.
 
 
 
